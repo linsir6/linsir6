@@ -1,5 +1,4 @@
 ### Hi there 👋
-![](https://tva1.sinaimg.cn/large/0081Kckwly1gk0oz4rw0bj317s0u04qs.jpg)
 
 看机会中，微信号gwl476671079
 
